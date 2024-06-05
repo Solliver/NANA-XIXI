@@ -10,4 +10,6 @@ Meu nome é Ana Luísa Oliveira de Sousa
 
 Você pode entrar em contato comigo 📫  
 
-00001091017141sp@al.educacao.sp.gov.br  
+00001091017141sp@al.educacao.sp.gov.br
+
+![](https://tenor.com/pt-BR/view/applejack-mlp-eyebrow-raise-really-excuse-me-gif-9387552033153383886).
