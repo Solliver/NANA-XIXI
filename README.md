@@ -12,4 +12,4 @@ Você pode entrar em contato comigo 📫
 
 00001091017141sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/applejack-mlp-eyebrow-raise-really-excuse-me-gif-9387552033153383886).
+![](https://tenor.com/pt-BR/view/quarantine-got-me-like-bored-happy-monday-monday-mood-spinning-gif-16731484)
